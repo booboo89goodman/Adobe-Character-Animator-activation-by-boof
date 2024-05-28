@@ -1,0 +1,1 @@
+# Adobe-Character-Animator-activation-by-boof
